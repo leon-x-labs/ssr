@@ -65,9 +65,9 @@ google.com(谷歌；搜索类） youtube.com(油管；视频类）
 
 [![搬瓦工](https://ssr.tools/wp-content/uploads/Banwagonhost.png)](https://bwh81.net/aff.php?aff=19935)
 
-* [Vultr官方网站](https://www.vultr.com/?ref=7236384)
+* [Vultr官方网站](https://www.vultr.com/?ref=9794786-9J)
 
-[https://www.vultr.com/?ref=7236384](https://www.vultr.com/?ref=7236384)
+[https://www.vultr.com/?ref=9794786-9J4](https://www.vultr.com/?ref=9794786-9J)
 
 [Vultr](https://www.vultr.com/?ref=7236384) （vultr在2019年1月的最新活动，针对新用户，直接送50美元！vultr全球15个服务器位置可选，KVM框架，最低2.5美元/月。支持支付宝和paypal付款。）
 
